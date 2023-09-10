@@ -14,3 +14,11 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 -->
+
+Hi, my name is Marv and I am a new software developer student learning the skills through a great boot camp. I have a background in public health and nutrition but I have coded before as a kid editing my MySpace page and as a college student doing research. I work full time and have been out of school for 5 years now, but I'm looking forward to making the time to get good at software development. 
+
+I enjoy playing basketball, reading, playing and listening to music, shooting photography, and watching tv as hobbies but I have many interests. 
+
+I am pretty good at meeting and making friends with a diverse mix of people and i think it's partly based on all of the interests that I have. 
+
+Well, thats enough about me. I'm really looking forward to this experiences and if you're on a similar journey reach out and connect! If you're more experienced and can offer guideance, please reach out as well!
