@@ -21,4 +21,4 @@ I enjoy playing basketball, reading, playing and listening to music, shooting ph
 
 I am pretty good at meeting and making friends with a diverse mix of people and i think it's partly based on all of the interests that I have. 
 
-Well, thats enough about me. I'm really looking forward to this experiences and if you're on a similar journey reach out and connect! If you're more experienced and can offer guideance, please reach out as well!
+Well, thats enough about me. I'm really looking forward to this experiences and if you're on a similar journey reach out and connect! If you're more experienced and can offer guidance, please reach out as well!
